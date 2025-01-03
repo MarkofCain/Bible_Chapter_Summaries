@@ -1,3 +1,36 @@
+# Mark Chapter 5 Summary -- Edit Date: January 3, 2025
+
+## 1. The Healing of the Demon-Possessed Man (Verses 1–20)
+- Jesus encounters a man possessed by a legion of demons in the region of the Gerasenes.
+- The man lives among the tombs, uncontrollable and tormented.
+- The demons recognize Jesus’ authority and beg Him not to send them out of the region.
+- Jesus permits the demons to enter a herd of pigs, which rush into the sea and drown.
+- The healed man desires to follow Jesus, but Jesus sends him to tell his story to others, spreading the news of God’s mercy.
+
+## 2. The Healing of the Woman with the Issue of Blood (Verses 21–34)
+- A large crowd gathers around Jesus as He returns to the other side of the lake.
+- A woman suffering from a chronic bleeding condition for 12 years secretly touches Jesus' cloak, believing it will heal her.
+- She is immediately healed, and Jesus notices power leaving Him.
+- Jesus calls her forward, commends her faith, and blesses her with peace and complete healing.
+
+## 3. The Raising of Jairus’s Daughter (Verses 35–43)
+- Jairus, a synagogue leader, pleads with Jesus to heal his dying daughter.
+- While on the way, messengers inform Jairus that his daughter has died.
+- Jesus reassures Jairus, saying, "Don’t be afraid; just believe."
+- At Jairus’s house, Jesus allows only Peter, James, and John to enter with Him.
+- Jesus raises the girl from the dead, commanding her, “Talitha koum!” ("Little girl, I say to you, get up").
+- The family is astonished, and Jesus instructs them to keep the miracle private and give the girl something to eat.
+
+---
+
+## Key Motifs in Mark 5
+1. **Authority over Evil:** Jesus demonstrates His supreme authority over demonic forces in the healing of the possessed man.
+2. **Faith and Healing:** The woman’s faith in touching Jesus’ garment emphasizes the power of personal trust in Jesus for healing.
+3. **Compassion for Individuals:** Jesus’ interactions with both the healed man and the woman show His concern for the marginalized and suffering.
+4. **Life from Death:** The raising of Jairus’s daughter highlights Jesus’ power over death and the promise of resurrection.
+5. **Proclamation of God’s Mercy:** Jesus commissions the healed man to testify to God’s goodness, encouraging others to believe.
+
+
 # Mark Chapter 6 Summary -- Edit Date: January 3, 2025
 
 ## 1. Rejection at Nazareth (Verses 1–6)
