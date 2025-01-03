@@ -177,3 +177,142 @@
 3. **Radical Love:** Jesus calls for extraordinary love and mercy, reflecting God’s character.
 4. **Obedience and Foundation:** True discipleship involves hearing and obeying Jesus’ words.
 
+
+# Luke Chapter 7 Summary
+
+## 1. The Faith of the Centurion (Verses 1–10)
+- A Roman centurion seeks Jesus to heal his servant, demonstrating remarkable faith by acknowledging Jesus’ authority.
+- Jesus marvels at his faith, healing the servant without even visiting the house.
+
+## 2. Jesus Raises a Widow’s Son (Verses 11–17)
+- In Nain, Jesus encounters a widow mourning her only son.
+- Moved with compassion, He raises the son from the dead, causing great fear and glorification of God.
+
+## 3. John the Baptist’s Question (Verses 18–35)
+- John the Baptist, in prison, sends disciples to ask if Jesus is the Messiah.
+- Jesus points to His works (healing, preaching) as evidence and commends John’s role as the forerunner.
+
+## 4. Jesus Anointed by a Sinful Woman (Verses 36–50)
+- At a Pharisee’s house, a sinful woman anoints Jesus’ feet with perfume, weeping and wiping them with her hair.
+- Jesus contrasts her love and faith with the Pharisee’s self-righteousness, declaring her sins forgiven.
+
+---
+
+## Key Motifs in Luke 7
+1. **Faith in Action:** The centurion and the woman demonstrate extraordinary faith and humility.
+2. **Compassion:** Jesus’ compassion is evident in raising the widow’s son.
+3. **Messianic Mission:** Jesus affirms His identity through miracles and teachings.
+4. **Forgiveness:** Jesus emphasizes forgiveness and the transformative power of love.
+
+---
+
+# Luke Chapter 8 Summary
+
+## 1. Women Supporting Jesus (Verses 1–3)
+- Luke highlights women, including Mary Magdalene and Joanna, who provide for Jesus and His disciples out of their resources.
+
+## 2. The Parable of the Sower (Verses 4–15)
+- Jesus teaches about different responses to God’s Word, symbolized by seed falling on various soils.
+
+## 3. A Lamp on a Stand (Verses 16–18)
+- Jesus teaches that the truth of God’s kingdom is meant to be revealed, urging His followers to listen carefully.
+
+## 4. Jesus’ True Family (Verses 19–21)
+- Jesus declares that His true family are those who hear and obey God’s Word.
+
+## 5. Jesus Calms the Storm (Verses 22–25)
+- Jesus rebukes a storm while in a boat with His disciples, demonstrating His authority over nature.
+
+## 6. Healing of the Demoniac (Verses 26–39)
+- Jesus casts out a legion of demons from a man in the Gerasenes, sending them into pigs that drown in the sea.
+
+## 7. Jairus’s Daughter and the Bleeding Woman (Verses 40–56)
+- Jesus heals a woman with a bleeding condition and raises Jairus’s daughter from the dead, emphasizing faith.
+
+---
+
+## Key Motifs in Luke 8
+1. **Faith and Obedience:** Faith in Jesus brings healing and restoration.
+2. **Revealing the Kingdom:** Parables emphasize understanding and proclaiming God’s truth.
+3. **Jesus’ Authority:** Over nature, demons, and death, Jesus displays His divine power.
+
+---
+
+# Luke Chapter 9 Summary
+
+## 1. The Sending of the Twelve (Verses 1–9)
+- Jesus sends the Twelve Apostles to preach, heal, and cast out demons, relying solely on God’s provision.
+
+## 2. The Feeding of the Five Thousand (Verses 10–17)
+- Jesus miraculously feeds a large crowd with five loaves and two fish, leaving leftovers.
+
+## 3. Peter’s Confession (Verses 18–20)
+- Peter declares Jesus as the Messiah in response to Jesus’ question, "Who do you say I am?"
+
+## 4. Jesus Predicts His Death (Verses 21–27)
+- Jesus foretells His suffering, death, and resurrection, calling His followers to take up their cross daily.
+
+## 5. The Transfiguration (Verses 28–36)
+- On a mountain, Jesus’ appearance is transformed, and Moses and Elijah appear, discussing His impending death.
+
+## 6. Healing a Demon-Possessed Boy (Verses 37–43)
+- Jesus rebukes a demon that the disciples couldn’t cast out, demonstrating His authority.
+
+## 7. Jesus’ Teachings on Greatness and Following (Verses 44–62)
+- Jesus teaches about humility, warns against exclusivity, and highlights the cost of discipleship.
+
+---
+
+## Key Motifs in Luke 9
+1. **Messianic Identity:** Jesus is revealed as the Messiah through Peter’s confession and the Transfiguration.
+2. **Faith in Action:** The apostles are empowered to continue Jesus’ ministry.
+3. **Sacrifice:** Discipleship requires self-denial and willingness to follow Jesus’ path.
+
+---
+
+# Luke Chapter 10 Summary
+
+## 1. The Sending of the Seventy-Two (Verses 1–24)
+- Jesus sends out 72 disciples in pairs to proclaim the kingdom, heal, and cast out demons.
+- They return rejoicing at their authority, but Jesus reminds them to rejoice in their salvation.
+
+## 2. The Parable of the Good Samaritan (Verses 25–37)
+- In response to a lawyer’s question, Jesus tells a parable emphasizing love for one’s neighbor, regardless of social or ethnic boundaries.
+
+## 3. Jesus at Martha and Mary’s Home (Verses 38–42)
+- Martha busies herself with serving, while Mary sits at Jesus’ feet, listening.
+- Jesus commends Mary’s choice, emphasizing the importance of prioritizing time with Him.
+
+---
+
+## Key Motifs in Luke 10
+1. **Proclaiming the Kingdom:** The 72 exemplify mission and reliance on God.
+2. **Loving Others:** The Good Samaritan parable highlights compassion across boundaries.
+3. **Prioritizing Jesus:** Time with Jesus takes precedence over distractions.
+
+---
+
+# Luke Chapter 11 Summary
+
+## 1. Teaching on Prayer (Verses 1–13)
+- Jesus teaches the Lord’s Prayer and encourages persistence in prayer.
+
+## 2. Driving Out a Demon (Verses 14–28)
+- Jesus casts out a demon and addresses accusations that He works by the power of Beelzebul.
+
+## 3. The Sign of Jonah (Verses 29–32)
+- Jesus rebukes the crowd for seeking a sign, pointing to His resurrection as the ultimate sign.
+
+## 4. The Lamp of the Body (Verses 33–36)
+- Jesus teaches about spiritual perception and the importance of being filled with light.
+
+## 5. Woes to the Pharisees and Experts in the Law (Verses 37–54)
+- Jesus condemns the Pharisees and legal experts for hypocrisy, burdening others while neglecting justice and love.
+
+---
+
+## Key Motifs in Luke 11
+1. **Prayer and Persistence:** Jesus emphasizes the importance of prayer and trust in God’s provision.
+2. **Spiritual Perception:** Jesus warns against hypocrisy and spiritual blindness.
+3. **Jesus as the Sign:** The resurrection is the ultimate confirmation of Jesus’ authority.
+
