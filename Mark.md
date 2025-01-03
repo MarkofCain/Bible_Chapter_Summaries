@@ -1,4 +1,4 @@
-# Mark Chapter 6 Summary
+# Mark Chapter 6 Summary -- Edit Date: January 3, 2025
 
 ## 1. Rejection at Nazareth (Verses 1–6)
 - Jesus returns to His hometown and teaches in the synagogue.
