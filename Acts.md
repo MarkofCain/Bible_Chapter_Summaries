@@ -356,4 +356,349 @@
 2. **The Gentiles:** Receive the gospel in many cities.
 3. **The Antioch Church:** Receives the missionary report.
 
+---
+
+# Acts Chapter 15 Summary
+
+## 1. The Jerusalem Council (Verses 1–21)
+- A debate arises about whether Gentile believers must follow the law of Moses, including circumcision.
+- Peter, Paul, Barnabas, and James affirm that salvation is by grace, and Gentiles should not bear the burden of the Mosaic law.
+
+## 2. The Council’s Letter to Gentile Believers (Verses 22–35)
+- The council sends a letter to Gentile believers encouraging them to abstain from certain practices while affirming their freedom in Christ.
+
+## 3. Paul and Barnabas Disagree (Verses 36–41)
+- Paul and Barnabas part ways after disagreeing about taking John Mark on their next journey. Paul chooses Silas, and Barnabas takes Mark.
+
+---
+
+## Key Motifs in Acts 15
+1. **Salvation by Grace:** The council confirms that salvation is through faith, not the law.
+2. **Unity in Diversity:** The church accommodates cultural differences while upholding core doctrine.
+3. **God’s Guidance:** The Spirit leads the council to wisdom and consensus.
+
+---
+
+## Key People in Acts 15
+1. **Peter:** Declares salvation by grace for all.
+2. **James:** Provides wise counsel as a leader in Jerusalem.
+3. **Paul and Barnabas:** Key figures in the Gentile mission.
+4. **Silas and John Mark:** New partners for Paul and Barnabas, respectively.
+
+---
+
+# Acts Chapter 16 Summary
+
+## 1. Timothy Joins Paul and Silas (Verses 1–5)
+- Paul recruits Timothy, a young believer, to join his missionary team.
+
+## 2. The Macedonian Call (Verses 6–10)
+- Paul receives a vision of a man in Macedonia asking for help, prompting the team to travel there.
+
+## 3. Lydia’s Conversion in Philippi (Verses 11–15)
+- Lydia, a wealthy merchant, becomes the first European convert and opens her home to the missionaries.
+
+## 4. Paul and Silas in Prison (Verses 16–40)
+- After casting out a spirit from a slave girl, Paul and Silas are imprisoned.
+- At midnight, an earthquake opens the prison, leading to the conversion of the jailer and his family.
+
+---
+
+## Key Motifs in Acts 16
+1. **God’s Direction:** The Spirit leads the missionaries to Macedonia.
+2. **Salvation for All:** Lydia and the jailer represent diverse converts.
+3. **Joy in Suffering:** Paul and Silas praise God even in prison.
+
+---
+
+## Key People in Acts 16
+1. **Paul and Silas:** Faithful missionaries despite persecution.
+2. **Timothy:** A young disciple who joins Paul’s team.
+3. **Lydia:** The first European convert.
+4. **The Philippian Jailer:** Converted after witnessing God’s power.
+
+---
+
+# Acts Chapter 17 Summary
+
+## 1. Ministry in Thessalonica (Verses 1–9)
+- Paul preaches in the synagogue, leading to both belief and opposition.
+
+## 2. Ministry in Berea (Verses 10–15)
+- The Bereans eagerly examine the Scriptures, leading many to believe.
+
+## 3. Paul in Athens (Verses 16–34)
+- Paul preaches at the Areopagus, addressing Greek philosophers and declaring the "unknown god" to be the true God.
+
+---
+
+## Key Motifs in Acts 17
+1. **Faith and Opposition:** The gospel elicits both belief and hostility.
+2. **Scriptural Examination:** The Bereans’ diligence serves as a model for faith.
+3. **Engaging Culture:** Paul contextualizes the gospel for a Greek audience.
+
+---
+
+## Key People in Acts 17
+1. **Paul:** Preaches in synagogues and marketplaces.
+2. **The Bereans:** Noble in their eagerness to study the Scriptures.
+3. **The Athenians:** Skeptical but curious listeners.
+
+---
+
+# Acts Chapter 18 Summary
+
+## 1. Paul in Corinth (Verses 1–17)
+- Paul meets Aquila and Priscilla, tentmakers who become his ministry partners.
+- Despite opposition, Paul stays in Corinth for 18 months, establishing a strong church.
+
+## 2. Return to Antioch (Verses 18–23)
+- Paul completes his second missionary journey and begins a third.
+
+## 3. Apollos Taught by Priscilla and Aquila (Verses 24–28)
+- Apollos, an eloquent preacher, is taught the full gospel by Priscilla and Aquila.
+
+---
+
+## Key Motifs in Acts 18
+1. **Partnership in Ministry:** Paul collaborates with Aquila, Priscilla, and Apollos.
+2. **Perseverance:** Paul remains in Corinth despite opposition.
+3. **Growth of Leaders:** Apollos is equipped for greater ministry.
+
+---
+
+## Key People in Acts 18
+1. **Paul:** Establishes the Corinthian church.
+2. **Priscilla and Aquila:** Ministry partners and teachers of Apollos.
+3. **Apollos:** A gifted preacher with growing understanding.
+
+---
+
+# Acts Chapter 19 Summary
+
+## 1. Paul in Ephesus (Verses 1–22)
+- Paul meets disciples who only know John’s baptism and teaches them about Jesus and the Holy Spirit.
+- Extraordinary miracles accompany Paul’s ministry in Ephesus.
+
+## 2. The Riot in Ephesus (Verses 23–41)
+- Silversmiths, led by Demetrius, incite a riot against Paul, fearing the loss of their trade due to declining idol worship.
+
+---
+
+## Key Motifs in Acts 19
+1. **The Holy Spirit:** Brings power and transformation to believers.
+2. **Opposition to Idolatry:** The gospel disrupts idol-centered economies.
+3. **God’s Power:** Miracles authenticate Paul’s message.
+
+---
+
+## Key People in Acts 19
+1. **Paul:** Preaches and performs miracles in Ephesus.
+2. **Demetrius:** Opposes Paul, fearing economic loss.
+3. **The Disciples in Ephesus:** Experience the power of the Holy Spirit.
+
+---
+
+# Acts Chapter 20 Summary
+
+## 1. Paul’s Farewell to the Ephesian Elders (Verses 17–38)
+- Paul encourages the Ephesian elders to shepherd the church faithfully, warning of future challenges.
+
+---
+
+## Key Motifs in Acts 20
+1. **Faithful Leadership:** Paul charges the elders to guard the flock.
+2. **Selfless Ministry:** Paul reflects on his sacrificial service.
+3. **Parting Words:** Paul’s love for the church is evident in his farewell.
+
+---
+
+## Key People in Acts 20
+1. **Paul:** Gives a heartfelt farewell to the Ephesian elders.
+2. **The Ephesian Elders:** Leaders charged with protecting the church.
+
+---
+
+# Acts Chapter 21 Summary
+
+## 1. Paul’s Journey to Jerusalem (Verses 1–16)
+- Paul is warned of impending danger but remains determined to go to Jerusalem.
+
+## 2. Paul Arrested in Jerusalem (Verses 17–40)
+- After being accused by Jews, Paul is arrested in the temple and addresses the crowd.
+
+---
+
+## Key Motifs in Acts 21
+1. **Courage in Obedience:** Paul is steadfast despite warnings of suffering.
+2. **Jewish Opposition:** Paul faces hostility for his ministry to Gentiles.
+3. **God’s Sovereignty:** Paul’s journey unfolds according to God’s plan.
+
+---
+
+## Key People in Acts 21
+1. **Paul:** Resolute in his mission despite danger.
+2. **The Jews in Jerusalem:** Accuse Paul of defiling the temple.
+
+---
+
+# Acts Chapter 22 Summary
+
+## 1. Paul’s Defense Before the Crowd (Verses 1–21)
+- Paul recounts his conversion and mission to the Gentiles.
+
+## 2. Paul and Roman Citizenship (Verses 22–30)
+- Paul invokes his Roman citizenship to avoid scourging, stunning the authorities.
+
+---
+
+## Key Motifs in Acts 22
+1. **Testimony:** Paul boldly shares his story of transformation.
+2. **Divine Calling:** Paul emphasizes his mission to the Gentiles.
+3. **Roman Citizenship:** Protects Paul from unlawful punishment.
+
+---
+
+## Key People in Acts 22
+1. **Paul:** Defends his calling and rights.
+2. **The Roman Authorities:** Realize Paul’s privileged status.
+
+---
+
+# Acts Chapter 23 Summary
+
+## 1. Paul Before the Sanhedrin (Verses 1–11)
+- Paul divides the Pharisees and Sadducees by affirming the resurrection.
+
+## 2. The Plot Against Paul (Verses 12–35)
+- Paul’s nephew uncovers a plot to kill him, leading to his transfer to Caesarea under Roman protection.
+
+---
+
+## Key Motifs in Acts 23
+1. **Courage:** Paul defends his faith before hostile leaders.
+2. **God’s Protection:** Paul is safeguarded from danger.
+3. **Resurrection Hope:** Central to Paul’s defense.
+
+---
+
+## Key People in Acts 23
+1. **Paul:** Defends the resurrection.
+2. **Paul’s Nephew:** Helps uncover the assassination plot.
+3. **The Roman Commander:** Ensures Paul’s safety.
+
+---
+
+# Acts Chapter 24 Summary
+
+## 1. Paul Before Felix (Verses 1–27)
+- Paul defends himself against accusations, sharing the gospel with Governor Felix.
+- Felix delays a verdict, hoping for a bribe.
+
+---
+
+## Key Motifs in Acts 24
+1. **Bold Witness:** Paul shares the gospel even during trial.
+2. **Justice Delayed:** Felix postpones judgment for selfish reasons.
+3. **God’s Sovereignty:** Paul’s mission continues under Roman custody.
+
+---
+
+## Key People in Acts 24
+1. **Paul:** Faithful in his testimony.
+2. **Felix:** A corrupt Roman governor.
+
+---
+
+# Acts Chapter 25 Summary
+
+## 1. Paul Appeals to Caesar (Verses 1–12)
+- Facing false accusations, Paul appeals to Caesar for a fair trial.
+
+## 2. Festus Consults King Agrippa (Verses 13–27)
+- Festus discusses Paul’s case with King Agrippa, preparing for his transfer to Rome.
+
+---
+
+## Key Motifs in Acts 25
+1. **Justice Through Rome:** Paul uses his rights as a Roman citizen.
+2. **God’s Plan:** Paul’s journey to Rome aligns with God’s purpose.
+3. **Political Maneuvering:** Festus seeks to please both Jews and Rome.
+
+---
+
+## Key People in Acts 25
+1. **Paul:** Appeals to Caesar for justice.
+2. **Festus:** The new Roman governor.
+3. **King Agrippa:** Prepares to hear Paul’s case.
+
+---
+
+# Acts Chapter 26 Summary
+
+## 1. Paul Before Agrippa (Verses 1–32)
+- Paul recounts his conversion and mission, appealing to Agrippa to believe in Jesus.
+
+---
+
+## Key Motifs in Acts 26
+1. **Testimony:** Paul passionately shares his transformation.
+2. **The Resurrection:** Central to Paul’s gospel message.
+3. **Appeal to Faith:** Paul challenges Agrippa to believe.
+
+---
+
+## Key People in Acts 26
+1. **Paul:** A bold witness to Jesus.
+2. **King Agrippa:** Intrigued but uncommitted to faith.
+
+---
+
+# Acts Chapter 27 Summary
+
+## 1. Paul’s Voyage to Rome (Verses 1–26)
+- A storm threatens the ship, but Paul reassures the crew with a message from God.
+
+## 2. The Shipwreck (Verses 27–44)
+- The shipwrecks on Malta, but all aboard survive as Paul predicted.
+
+---
+
+## Key Motifs in Acts 27
+1. **God’s Protection:** Paul’s faith encourages others.
+2. **Divine Sovereignty:** Paul trusts God’s promises.
+3. **Leadership in Crisis:** Paul’s calm leadership inspires hope.
+
+---
+
+## Key People in Acts 27
+1. **Paul:** A leader during the storm.
+2. **The Ship’s Crew:** Witnesses God’s power through Paul.
+
+---
+
+# Acts Chapter 28 Summary
+
+## 1. Ministry on Malta (Verses 1–10)
+- Paul heals many on the island of Malta after surviving a snake bite.
+
+## 2. Paul Arrives in Rome (Verses 11–16)
+- Paul finally reaches Rome under guard but is allowed to live in his own rented house.
+
+## 3. Paul’s Ministry in Rome (Verses 17–31)
+- Paul preaches the gospel boldly to Jews and Gentiles, fulfilling his mission.
+
+---
+
+## Key Motifs in Acts 28
+1. **Faithful Witness:** Paul preaches the gospel to all in Rome.
+2. **God’s Provision:** Paul’s journey demonstrates God’s care and purpose.
+3. **Unstoppable Gospel:** The book ends with the gospel reaching the heart of the Roman Empire.
+
+---
+
+## Key People in Acts 28
+1. **Paul:** A faithful witness despite imprisonment.
+2. **The Maltese People:** Beneficiaries of Paul’s ministry.
+3. **The Roman Guard:** Oversees Paul but allows him freedom to preach.
 
